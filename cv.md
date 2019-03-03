@@ -1,10 +1,10 @@
 # Tatsiana Rusina
 ## Contact Information
-** Mobile phone: ** +375259588422
+**Mobile phone:** +375259588422
 
-** Email: ** <rtatsia@gmail.com>
+**Email:** <rtatsia@gmail.com>
 
-** Skype: ** vik88722
+**Skype:** vik88722
 
 ## Education
 I am a student of the Belarusian State University of Informatics and Radioelectronics, Faculty of Engineering and Economics, specializing in electronic marketing. I have knowledge in IT-sphere, I know the main programming languages at a basic level:
