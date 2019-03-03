@@ -1,7 +1,6 @@
 # Tatsiana Rusina
 ## Contact Information
-** Mobile phone: ** +375259588422
-
+** Mobile phone: ** +375259588422 
 ** Email: ** <rtatsia@gmail.com>
 
 ** Skype: ** vik88722
